@@ -1,7 +1,7 @@
 - 👋 Hi, I’m wahyu
 - 👀 I’m interested in boy
 - 🌱 I’m currently learning smk
-- 💞️ I’m looking to collaborate on indi
+- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me kasih kata buat aku"...
 
 <!---
